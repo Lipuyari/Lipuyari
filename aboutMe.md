@@ -39,7 +39,7 @@ I have a wide range of interests.
 Doesn't every Chinese have these two endings for every school they graduate from:
 
 - Getting better (but after I graduated, it just didn't work out for me).
-- Disappear. I'd like to come back and miss it.)
+- Disappear. (I'd like to come back and miss it.)
 
 I'd like to come back and miss it. Maybe there's another ending: getting better and then disappearing.
 
