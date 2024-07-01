@@ -54,3 +54,6 @@ I'd like to come back and miss it. Maybe there's another ending: getting better 
 **College**: Huh? I haven't graduated yet? That's okay then. 
 
 **Graduate student**: huh? Just hate the lack of intelligence.
+
+
+*** Translated with www.DeepL.com/Translator (free version) ***
