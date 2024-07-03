@@ -1,4 +1,4 @@
-## Look here 👋
+# Look here 👋
 
 This is Lipuyari.
 
@@ -17,8 +17,6 @@ Though I'm not sure what such a name looks like to a native English speaker.
 > 3. **Cultural background**: Many English names have a specific cultural or historical background, whereas "Lipuyari" does not have such a connection and may be unfamiliar to people.
 > 4. **Uniqueness**: It is very unique and will surely impress people. But at the same time, a unique name may attract extra attention.
 
-
-
 ## About me
 
 I'm from China, the world's most populous country (used to be 😓 not so long ago), and Indians are so awesome!!!! 👍
@@ -31,8 +29,6 @@ I have a wide range of interests.
 - 🎮Games, this game thing really makes me love and hate, love because it really makes me feel another more comprehensive art in addition to anime; hate for a lot of reasons, at that time, I really came across a lot of excellent games, but many games do not have built-in official Chinese language, which makes me in the Internet non-stop looking for game Chinese patches, and many games optimisation! I can't say the same for the optimisation of many games, and that's you - my world in Java. (Luckily I can install modules now 😫 )
 - 🎵 Music, is there really anyone who hasn't had the experience of listening to music while doing homework? My favourite types of music are also very varied, almost all over the place; all kinds of instruments, genres, styles, languages, all of them have been "tasted" by my ears. Good music can also improve the efficiency of work, anyway, every time I am called to do housework, listen to some European and American music style, rhythmic songs, that brush the dishes and mop the floor efficiency is not too high.
 - 💪 sports, 🏀 basketball, played; 🏸 badminton, played; 🏓ping-pong, played; ⚽ football, kicked; 🎱 billiards, guided; ⛰ hiking, climbed; 🛹 skateboarding, skated; 🚲 cycling, riding for six years in middle school; 🏃‍ running, from a young age; 📖 homework, endless writing. (What? Of course writing homework is considered a sport!!!! Who doesn't get tired of writing homework? It's AI, it must be AI!!!)
-
-
 
 ### Education
 
@@ -55,5 +51,4 @@ I'd like to come back and miss it. Maybe there's another ending: getting better 
 
 **Graduate student**: huh? Just hate the lack of intelligence.
 
-
-*** Translated with www.DeepL.com/Translator (free version) ***
+***Translated with <www.DeepL.com/Translator> (free version)***
